@@ -1,5 +1,5 @@
 # Monke mods
-THIS IS NOT MINE!!!
+THESE MODS ARE NOT MINE!!!
 I putting mods here to help anyone who needs it!
 #1 download monkey mod manager
 #2 Download all the items in the bottem area 
